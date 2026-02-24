@@ -6,6 +6,8 @@
 
 [Bug reports](https://lnk.ua/2V5X29leM)
 
+[SOL queries](https://lnk.ua/aV7ja9pe1)
+
 
 
 
