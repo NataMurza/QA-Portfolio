@@ -8,6 +8,8 @@
 
 [SOL queries](https://lnk.ua/aV7ja9pe1)
 
+[Web Technologies & Client-Server Architecture](https://lnk.ua/AVM2MjvNo)
+
 
 
 
