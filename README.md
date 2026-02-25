@@ -10,6 +10,8 @@
 
 [Web Technologies & Client-Server Architecture](https://lnk.ua/AVM2MjvNo)
 
+[Bug reports for site "Filmoteka"](https://lnk.ua/wVl3gJoeP)
+
 
 
 
